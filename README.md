@@ -16,7 +16,7 @@
 
 ## 📫 Connect with me
 
-* 📧 Email: [111124118@nitt.edu] [nishkalaseerapu@gmail.com]
+* 📧 Email: [111124118@nitt.edu] [seerapunishkala07@gmail.com]
   
 --> “Stay grounded, dream big.” ✨
 
